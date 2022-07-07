@@ -1,2 +1,3 @@
-# tankionlinewiki.github.io
-TankiOnlineWiki
+SYNTAX CHECK:
+  FAILED
+  EMOTIONAL DAMAGE
