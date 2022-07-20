@@ -1,3 +1,1 @@
-SYNTAX CHECK:
-  FAILED
-  EMOTIONAL DAMAGE
+Give Me Some Support If U Like This ♥
